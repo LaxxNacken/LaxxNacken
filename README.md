@@ -1,1 +1,1 @@
-I don't know how to code, but most of the it just works
+I don't know how to code, but most of the time it just works
